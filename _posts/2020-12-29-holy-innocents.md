@@ -22,5 +22,5 @@ But beloved, even as we pause to take stock at the carnage of the past year, the
 
 Let us, therefore, look with wonder at the Holy Child, while still remembering the needs and concerns of our siblings here on Earth.
 
-Your Sibling in Christ,
+Your Sibling in Christ,<br/>
 -Sam Christopher
