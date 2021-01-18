@@ -7,10 +7,10 @@ tags:
   - Holy Innocents
   - Justice
 ---
-_This little  Babe so few days old is come to rifle Satan's fold;_
-_All hell doth at his presence quake though he himself for cold do shake;_
-_For in this weak unarmèd wise the gates of hell he will surprise._
-- <cite>Robert Southwell (c. 1561--95)</cite>
+>This little  Babe so few days old is come to rifle Satan's fold;  
+>All hell doth at his presence quake though he himself for cold do shake;  
+>For in this weak unarmèd wise the gates of hell he will surprise.
+--<cite>Robert Southwell (c. 1561--95)</cite>
 
 Dear Friends in Christ:
 
